@@ -1,4 +1,4 @@
-# <title>Zlot | Canlı Bahis, Slot Oyunları ve Güncel Giriş Adresi</title>
+# Zlot | Canlı Bahis, Slot Oyunları ve Güncel Giriş Adresi
 
 Zlot, spor bahisleri, canlı casino, slot oyunları ve çeşitli yatırım bonusları ile kullanıcılarına eğlenceli, güvenli ve yüksek oranlı bir oyun deneyimi sunan online bahis platformudur. Modern tasarımı, mobil uyumu ve 7/24 destek altyapısı ile sektörde fark yaratır.
 
