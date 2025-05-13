@@ -2,7 +2,7 @@
 
 Zlot, spor bahisleri, canlı casino, slot oyunları ve çeşitli yatırım bonusları ile kullanıcılarına eğlenceli, güvenli ve yüksek oranlı bir oyun deneyimi sunan online bahis platformudur. Modern tasarımı, mobil uyumu ve 7/24 destek altyapısı ile sektörde fark yaratır.
 
-<title>Zlot | Bahis ve Slot Platformu</title>
+## <title>Zlot | Bahis ve Slot Platformu</title>
 <meta name="description" content="Zlot, bahis ve slot oyunlarıyla eğlenceli bir deneyim sunar. Güncel giriş için bizi takip edin.">
 
 
